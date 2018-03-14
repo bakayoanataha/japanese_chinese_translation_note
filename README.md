@@ -1,0 +1,1 @@
+# japanese_chinese_translation_note
